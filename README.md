@@ -1,2 +1,1 @@
-# Forum
-Making a forum for my business "treaty"
+My name is jerry. I am 12. I play the trumpet.
